@@ -1,1 +1,1 @@
-# Seminarios de Bioestadísca para Fisioterapia
+# Seminarios de Bioestadística para Fisioterapia
